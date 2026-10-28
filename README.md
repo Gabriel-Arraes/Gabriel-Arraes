@@ -10,3 +10,4 @@
 - 🌎 Based in Brazil.
 
 - ✉️ Hdgabriellima@icloud.com
+- Linkedin : www.linkedin.com/in/gabriel-lima-arraes-04bba4224
